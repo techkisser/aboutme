@@ -2,7 +2,7 @@
 
 ㅤㅤmiche sonnet or andris (= ⩊ =)೨ he they it or any i dont really notice nor care what prns you use on me. transmasc aroace gay yumedanshi
 
-ㅤㅤi like gridworld, hetalia, homestuck, sfawtde, scandinavia and the world, undertale, deltarune, hfjone, fionna and cake, smiling friends, minesweeper plus and scott pilgrim vs the world
+ㅤㅤmy current fixations are scandinavia and the world webcomic, hetalia axis powers, latin hetalia, visual novels and extrahistory. i like talking about my interests a lot
 
 ㅤㅤfeel free to ask for my discord if you want to be oomfs. c+h and boops encouraged. no dni i block freely. check info rentry recommended
 
